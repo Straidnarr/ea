@@ -1,0 +1,20 @@
+Hace  un  tiempo  estuve  rentando  un  depa  con  un  primo  pero  el  vato estaba  bien  pinche  loco  sexual,  seguido  llevaba  vatos  lavacoches,  inditosmorritos  vendechicles,  
+indigenas  y  hasta  centroamericanos que  se  encontraba en las vias del tren.Miprimo muy bien samaritano les daba de tragar, los dejaba bañarse o hastra les rolaba tennis o ropa; 
+todo esto a cambio de coger o minimo dejarse mamar la riata.Admitoque  al  principio  no  me  gustaba  mucho  la  idea,  y  preferia encerrarme  enmi  cuarto  oyendo  musica,  
+fumarme  un  porro  o  lo  que  fuera menos oler a los vagabundos,pero mi primo iba trayendo weyes cada vez mas cabrones, yonkis, dementes maltripeados y pues me pedia que lo cuidara por si 
+se  ponian  agresivos,  ademas  que  else  apendejaba  bastante  con  los  poppers jajajajja, aceptede mala gana, aunque le fui agarrando el gusto y el morbo de ver cabrones de la calle 
+cogerse a mi primo sin condon. Unavez,  estaba  yo  en  la  cocina,  llego  mi  primo  y  me  dio  un  tufoculerisimo  pero  cabron,  ya  pensaba  yo  se  habia  traido  un  cadaver  o  algo
+asicuando  me  asomo y  veo  que  trajo  al  pinche  vagabundo  mas  pinche  yonki llevado a la verga que se pueden imaginar.Todo mugruso, piojoso, con el pelo hecho rastas como de mugre y
+mierda, tembloroso con la mirada perdida y con unachamarra dura de tanta suciedad.Ledimos  una  maruchan  al  wey  y  mientras  tragaba  le  dije  a  mi  primo:  ̈nu maaaa te pasate de cabron ̈ y el solo se ríe y me contesta:
+jajaja ya se.En eso el vago se mete la mano a la bolsa de suchamarra y agarro mi fusca por si las moscaspero nel, el wey nomas saca una pinche rartota muerta toda tiesa, la empapa de tiner y la comienza a inhalar como estopa.Yo dije: 
+̈numaaa que pex ̈, y mi primo ya estaba bien caliente como que le prendio esa chingadera y que se le avientaa si a mamarle la verga sin siquiera bañarlo.Elmugroso  estaba  ahi  de  patas  abiertas  inhalando  su  ratota,  
+mientras mi primo le quito el pantalon todo mugriento,y le saco la verga, la neta la tenia enorme,  quizas  y  hasta  estuviera  rika  sin  todas  esas  capas  de  esmegma  ni  lasladillas que adornaban sus rasta pubicas. 
+Mi primo se tragaba toda la riata y yo no  sabia  si  exitarme  o  vomitar  así  que  opte  por  fumarme  unos  porritos.Miprimo, todo caliente sedesnudo por completo y le ofrecio el culo al malviviente,  que  sin  pensarlo  se 
+puso  a  marmarselo. El  pasivote  de  mi  primo estaba en pleno extasis, en un estado de trance al sentir su culo mimado por el ocico  del  indigente.No  tardo  mucho  el  vago  en  ensartarle  sumacanota,  toda dura y sin condon, 
+haciendo gemir y gritar a mi primo como puta en celo, todo entrado en los poppers.Estaban  en  el  mete  y  saca,  cuando  el  wey  saca  su  rata  y  le  da  un  jalon produndo y toma que se la mete en el ano a mi primazo, numaaa, 
+y dale que se lo  sigue  cojiendo  mas  duro,  empujandole  la  rata  al  recto. Unacojida  cada  vez másbrutal, y luego deun rato ya el culo de mi primo escurriendo en mecos. Elcabron  este  luego  de  sacar  su  riata  ya  aguada,  
+se  chinga  ya  lo últimode maruchan y  me  empieza  a  gritar. Nose  ni  que  vergas  balbuceaba  y  yo  ya 
+andaba  bien  mariguas,  asi  que  nomas  leapunte  con  la  fusca  y  lomande corriendo a chingar a su padre. El vato salio todo escamado que ni tiempo tuvo de ponerse los pantalones jajajaja y pos yo me quede ahi dormido.
+Al rato me despierto con los gritos y quejidos de mi puto primo. estaba chille y chille que le dolia el culo y las tripas, ni se acordaba todo lo que le hizo su  amante,  yo  de  buena  onda  lo  ayude  para  llevarlo  al  baño  a  que  
+cagara  los mecos  atoradosy  numaaa  que  le  sale  la  pinche  rata  del  culo,  pero  toda despedazada  y  llena  de  gusanos. Miprimo  casi  se  desmaya  del  susto  y  pidió que lo llevara la clinica para que le hicieran un lavado jajajaja
+pero bien valiente que se sentia en su calentura jejeje es neta
